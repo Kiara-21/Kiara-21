@@ -1,1 +1,1 @@
-## Terrible useless programming knowledge: https://www.youtube.com/channel/UCQ6sq4DcPyZGX80G3rMCNHQ/featured
+## Terrible useless programming knowledge: https://www.youtube.com/channel/UCQ6sq4DcPyZGX80G3rMCNHQ
